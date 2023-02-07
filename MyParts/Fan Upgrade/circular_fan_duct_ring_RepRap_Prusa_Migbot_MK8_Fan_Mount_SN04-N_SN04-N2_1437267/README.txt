@@ -1,0 +1,1 @@
+circular fan duct ring RepRap Prusa Migbot MK8 Fan Mount SN04-N SN04-N2 by losinapetrovski on Thingiverse: https://www.thingiverse.com/thing:1437267
